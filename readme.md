@@ -1,4 +1,4 @@
-"Good morning, everyone! My name is Vishal Kumar Yadav, and today we are gathered to discuss a crucial topic that impacts every corner of the globe—
+"Good morning, everyone! My name is Vikash Kumar Yadav, and today we are gathered to discuss a crucial topic that impacts every corner of the globe—
 'Climate Change: Causes, Effects, and Solutions for a Sustainable Future.' We all know that climate change is no longer a distant issue;
 it's happening right now, affecting communities, economies, and ecosystems. To kick things off, I’ll provide a brief overview.
 
